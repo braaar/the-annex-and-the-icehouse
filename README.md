@@ -1,2 +1,2 @@
-# the-annex-and-the-whitehouse
+# the-annex-and-the-icehouse
 Rental accomodation in Hanevik
